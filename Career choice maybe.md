@@ -14,3 +14,5 @@
 - Mày có hay để ý tiểu tiết, hay kiểu làm "miễn xong được việc là được"?
 	Trừ khi là việc tao không giỏi/không có hứng thú, thì có, rất có, nếu mà nó đúng chuyên môn hay sở thích của tao, thì tao muốn làm nó một cách hết mình, hoàn hảo nhất có thể, tuy nhiên là không phải lúc nào tao cũng làm được như thế, nhưng mà sự hoàn hảo trong công việc bản thân thực hiện nó là một mục tiêu của tao.
 ## Phần 2: Sở thích cá nhân
+- Kể ra 5 thứ mày có hứng thú hoặc thấy vui khi làm, dù là việc nhỏ như "cắm hoa", "chơi game" cũng được.
+	Chà... câu này khó trả lời phết đấy, tại vì không phải lúc nào những thứ tao từng thấy vui khi làm nó sẽ luôn luôn như thế ấy, chắc là mày hiểu mà. Nên là tao sẽ giả định trong trường hợp là tao đang trong tâm trạng bình thường, đầy năng lượng và sẵn sàng để làm mọi thứ kiểu vậy nhá.
