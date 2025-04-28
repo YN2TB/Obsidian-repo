@@ -13,12 +13,12 @@
             "state": {
               "type": "markdown",
               "state": {
-                "file": "Diary/27-04-2025.md",
+                "file": "Career choice maybe.md",
                 "mode": "source",
                 "source": false
               },
               "icon": "lucide-file",
-              "title": "27-04-2025"
+              "title": "Career choice maybe"
             }
           }
         ]
@@ -171,10 +171,11 @@
   },
   "active": "e8e4663760c22ec2",
   "lastOpenFiles": [
-    "README.md",
-    "Diary/27-04-2025.md",
-    "Diary",
     "Love Lessons/Untitled.md",
+    "Career choice maybe.md",
+    "Diary/27-04-2025.md",
+    "README.md",
+    "Diary",
     "Love Lessons"
   ]
 }
