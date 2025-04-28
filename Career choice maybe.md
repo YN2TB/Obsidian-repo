@@ -10,4 +10,4 @@
 - Môi trường mày thích: **Yên tĩnh, ít người** hay **Nhộn nhịp, nhiều người**?
 	Câu này dễ trả lời này, không cần nghĩ luôn, **yên tĩnh, ít người** nhé. Đơn giản là từ nhỏ đến bây giờ, kể cả là nơi tao từng sống đến bây giờ, nó khá là yên tĩnh và thời gian tao ở một mình chiếm khá là nhiều, cho nên là cảm giác tao thoải mái hơn lúc ở một mình. Thêm nữa là tao là cái kiểu người mà sẽ thấy tụt năng lượng trong môi trường nhộn nhịp và đông người, nên là tao nghĩ việc đi làm ở môi trường như thế sẽ làm tao có cảm giác không năng suất cho lắm.
 - Mày có thích "cạnh tranh" không?
-	
+	Thú thực là không, tao biết là việc cạnh tranh là yếu tố để phát triển và có thể kiếm được nhiều hơn, kiểu "high risk high rewards" như cái công việc ổn định hay là thay đổi liên tục ấy. Nhưng mà tao không nghĩ là bản thân tao không thích cái việc phải cạnh tranh mọi lúc, cứ phải gồng mình lên để giữ cái vị trí mà mình cố gắng để giành được cảm giác nó khá là mệt, tao chưa từng đi làm nên tao không chắc về việc d
