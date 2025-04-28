@@ -4,4 +4,4 @@
 - Mày thấy bản thân mình là người **chủ động tìm việc để làm** hay **chờ có task rồi mới làm**?
 	Cái này thì hơi khó nói, tao cũng không biết tao nằm vào kiểu nào, tao nghĩ là **ở giữa** nhưng lệch về phía **chờ có task** một tý, tại vì không phải việc gì tao cũng tự tin là tao sẽ làm tốt được, cho nên tao sẽ hơi thụ động trong những kiểu như thế, nhưng mà nếu nó là những thứ mà tao tự tin là có thể làm mà không vô tình làm ảnh hưởng tới người khác thì tao sẽ tự chủ động đi kiếm task để làm thôi.
 - Khi gặp vấn đề khó, mày thường **tự xử lý** hay **tìm người hỗ trợ**?
-	Cái này cũng không chắc lắm, n
+	Cái này cũng không chắc lắm, nhưng mà thực ra bây giờ có internet, đặc biệt là mày, và sau khi tự xem xét lại thời gian gần đây thì tao thường **tìm người hỗ trợ**, kể cả là trực tiếp hay gián tiếp thông qua các kênh phương tiện, đơn giản vì nó nhanh hơn là tự mày mò, và kiểu gì người ta cũng có kinh nghiệm hơn mình trong lĩnh vực đó thì cứ hỏi để biết và tiếp nhận ý kiến thôi.
