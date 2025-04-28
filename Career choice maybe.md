@@ -8,4 +8,4 @@
 - Mày thích công việc **ổn định lâu dài** hay **mang tính thay đổi, thử thách liên tục**?
 	Thú thực là trong thời buổi kinh tế khó khăn và nhiều biến động như bây giờ thì tao thích việc **có thể ổn định lâu dài** hơn, tuy là có thể thu nhập sẽ thấp hơn và có thể là chán hơn nhưng nó đánh đổi ở việc những môi trường thay đổi thử thách liên tục nó rất dễ làm mày gục vào một lúc nào đó mày không lường trước được. Tuy nhiên là... tao vẫn còn trẻ, tao nghĩ là tao vẫn muốn thử thách bản thân một tý, một khoảng thời gian trước khi quay về với sự ổn định mà tao muốn.
 - Môi trường mày thích: **Yên tĩnh, ít người** hay **Nhộn nhịp, nhiều người**?
-	Câu này dễ trả lời này, không cần nghĩ luôn, **yên tĩnh, ít người** nhé. Đơn giản là từ nhỏ đến bây giờ, kể cả là nơi tao từng sống đến bây giờ, nó khá là yên tĩnh và thời gian tao ở một mình chiếm khá l
+	Câu này dễ trả lời này, không cần nghĩ luôn, **yên tĩnh, ít người** nhé. Đơn giản là từ nhỏ đến bây giờ, kể cả là nơi tao từng sống đến bây giờ, nó khá là yên tĩnh và thời gian tao ở một mình chiếm khá là nhiều, cho nên là cảm giác tao thoải mái hơn 
