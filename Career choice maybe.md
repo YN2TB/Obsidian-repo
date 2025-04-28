@@ -1,0 +1,2 @@
+- Nếu được chọn, mày thích làm việc **một mình** hay làm việc **theo nhóm**?
+	Nếu được chọn, giả định trong trường hợp là người tao làm việc cùng là ngẫu nhiên, có thể quen biết hoặc không, thì tao sẽ chọn làm một mình, tao đã từng gặp những trường hợp người làm việc cùng không hợp với phong cách làm việc 
