@@ -4,3 +4,4 @@
 - Bench dips 3x8
 - Bicep curl 3x10
 - Lateral raise 2x10
+- Plank 3x30s
