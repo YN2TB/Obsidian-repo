@@ -7,4 +7,4 @@
 - Plank 3x30s
 ### 30-04-2025
 - Pushup 3x8
-- 
+- Floor press 4x10
