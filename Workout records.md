@@ -8,3 +8,4 @@
 ### 30-04-2025
 - Pushup 3x8
 - Floor press 4x10
+- Shoulder tap plank 
