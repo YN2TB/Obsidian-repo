@@ -9,4 +9,4 @@
 - Pushup 3x8
 - Floor press 4x10
 - Shoulder tap plank 3x20
-- Assisted pistol squa
+- Assisted pistol squat 2x10
