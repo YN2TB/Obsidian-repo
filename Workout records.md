@@ -5,3 +5,6 @@
 - Bicep curl 3x10
 - Lateral raise 2x10
 - Plank 3x30s
+### 30-04-2025
+- Pushup 3x8
+- 
