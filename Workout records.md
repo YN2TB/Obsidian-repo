@@ -13,4 +13,4 @@
 ### 01-05-2025
 - Hamstring active/passive stretch 3x30s
 - Pushup 3x8
-- 
+-  
