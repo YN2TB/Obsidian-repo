@@ -11,4 +11,4 @@
 - Shoulder tap plank 3x20
 - Assisted pistol squat 2x10
 ### 01-05-2025
-- 
+- Hamstring active/passive stretch 3x30s
