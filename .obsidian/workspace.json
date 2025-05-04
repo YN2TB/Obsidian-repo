@@ -13,12 +13,12 @@
             "state": {
               "type": "markdown",
               "state": {
-                "file": "Diary/2025-05-04.md",
+                "file": "Workout records.md",
                 "mode": "source",
                 "source": false
               },
               "icon": "lucide-file",
-              "title": "2025-05-04"
+              "title": "Workout records"
             }
           }
         ]
@@ -171,8 +171,8 @@
   },
   "active": "e8e4663760c22ec2",
   "lastOpenFiles": [
-    "Workout records.md",
     "Diary/2025-05-04.md",
+    "Workout records.md",
     "Diary/2025-05-01.md",
     "Diary/2025-04-27.md",
     "Diary/2025-04-29.md",
