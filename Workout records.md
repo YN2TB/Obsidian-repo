@@ -24,3 +24,7 @@
 ### 04-05-2025
 - Hamstring active/passive stretch 3x30s
 - Burpee x30
+### 05-05-2025
+- Hamstring active/passive stretch 3x30s
+### 06-05-2025
+- Rest
