@@ -28,3 +28,8 @@
 - Hamstring active/passive stretch 3x30s
 ### 06-05-2025
 - Rest
+### 07-05-2025
+- Hamstring active/passive stretch 3x30s
+- Dead hang 3x45s
+- Negative pull up 5x3
+- Burpee x20
