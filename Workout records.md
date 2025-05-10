@@ -41,3 +41,4 @@
 - Hamstring active/passive stretch 3x30s
 - Bulgarian squat 3x10
 - Sissy squat 3x5
+- Squat 3x10
