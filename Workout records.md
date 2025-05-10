@@ -31,5 +31,13 @@
 ### 07-05-2025
 - Hamstring active/passive stretch 3x30s
 - Dead hang 3x45s
-- Negative pull up 5x3
+- Negative pull up 5x3 - ts hits hard ngl
 - Burpee x20
+### 08-05-2025
+- Rest
+### 09-05-2025
+- Rest
+### 10-05-2025
+- Hamstring active/passive stretch 3x30s
+- Bulgarian squat 3x10
+- Sissy squat 3x5
